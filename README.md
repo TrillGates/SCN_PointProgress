@@ -13,3 +13,11 @@ Wish you will like this progress!
 here is the gif pic.
 
 ![](https://github.com/TrillGates/SCN_PointProgress/blob/master/GIF.gif)
+
+
+#contace me:
+here is my blog and disscuz size.
+
+[BBS](http://bbs.sunofbeaches.com/)
+
+[BLOG](http://sunofbeaches.com/)
